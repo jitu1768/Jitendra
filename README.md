@@ -1,2 +1,0 @@
-# Jitendra
-New user
